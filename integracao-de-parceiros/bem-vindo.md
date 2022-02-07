@@ -54,3 +54,8 @@ personalização de atendimento e produto;
 gerenciamento dos meios de comunicação, como e-mail, telefone, redes sociais, SMS, aplicativos etc.;
 resposta rápida aos problemas, dúvidas, elogios e críticas.
 Para garantir esses propósitos, é preciso fazer a gestão da experiência do consumidor, uma estratégia de longo prazo e que passa por todos os setores organizacionais. Seu objetivo é garantir o sucesso das iniciativas e aprimorar o relacionamento com o cliente, para que ele possa ser fidelizado.
+
+Empatthy -awareness, understanding and sensitivy to the feelings, thoughts, and experiences of another
+Emaptia -consciência, compreensão e sensibilidade aos sentimentos, pensamentos e experiências de outro
+
+![image](https://user-images.githubusercontent.com/52088444/152801966-c206cb96-4c9d-4552-ba3e-25d54d16ae54.png)
