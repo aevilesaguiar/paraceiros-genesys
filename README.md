@@ -1,0 +1,2 @@
+# paraceiros-genesys
+ Um vídeo de 3 minutos da história da Genesys Vídeo Boas-vindas de Tony aos Parceiros Vídeo Evolução do Contact Center Moderno Vídeo ML Maco - Nosso modelo Go-To-Customer Vídeo Super Human Service: Estamos por trás de cada sorriso do cliente Vídeo do youtube Ken Archer - Parceiros de boas-vindas Vídeo Super Human Service: Genesys saúda os profissionais de atendimento ao cliente Vídeo do youtube O que é CX Vídeo Experiência como Serviço com Charlie Godfrey Vídeo
